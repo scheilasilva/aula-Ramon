@@ -1,2 +1,0 @@
-# aula-Ramon
-atividades
